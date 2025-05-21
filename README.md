@@ -1,1 +1,0 @@
-# ekimbolat.github.io
